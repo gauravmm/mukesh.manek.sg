@@ -1,5 +1,5 @@
-## Mukesh Manek
+---
+title: Consultant, Education and Training
+---
 
-_Consultant, Education and Training_
-
-
+Mukesh Manek is a lecturer and consultant specializing in education and training in Singapore.
